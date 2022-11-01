@@ -12,6 +12,8 @@ Jack Kerouac sat beside me on a busted rusty iron pole, companion, we thought th
 
 ![](/images/elcarito-CRn-_80z4SE-unsplash.jpg)
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LIkQ6u5_uMM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 The only water on the river mirrored the red sky, sun sank on top of final Frisco peaks, no fish in that stream, no hermit in those mounts, just ourselves rheumy-eyed and hung-over like old bums on the riverbank, tired and wily.
 
 Look at the Sunflower, he said, there was a dead gray shadow against the sky, big as a man, sitting dry on top of a pile of ancient sawdust--
